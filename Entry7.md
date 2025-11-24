@@ -9,3 +9,6 @@ If you ask me the heist was really dumb because who is gonna buy this stuff? som
 ## 3
 Smelt it and sell the Raw Material is also dumb because as far as i know the Value of this stuff doesnt come from the Raw Gold etc. the Value is the History behind it. 
 For sure you make a good amount of money if you smelt and then sell but not as much as if you sell it in whole. 
+
+
+<img width="225" height="225" alt="image" src="https://github.com/user-attachments/assets/3eb79452-38d5-484e-ae91-1f0753367e7a" />
