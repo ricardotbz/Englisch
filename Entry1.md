@@ -4,9 +4,9 @@ A relaxing weekend getaway to **Porto**, an energetic visit to **Openair Frauenf
 
 ## Porto: Relaxing Riverside Vibes
 
-Porto offered a perfect weekend escape with its stunning Douro River views and iconic Dom Luís I Bridge, ideal for leisurely walks and sunset watching.[web:5][web:9]  
-Highlights included wandering the colorful Ribeira district, tasting port wine, and admiring azulejo tiles on historic buildings.[web:6][web:12]  
-The city's terracotta rooftops and vintage trams added to the chill atmosphere.[web:5]
+Porto offered a perfect weekend escape with its stunning Douro River views and iconic Dom Luís I Bridge, ideal for leisurely walks and sunset watching. 
+Highlights included wandering the colorful Ribeira district, tasting port wine, and admiring azulejo tiles on historic buildings.
+The city's terracotta rooftops and vintage trams added to the chill atmosphere.
 
 ## Openair Frauenfeld: Festival Energy
 
